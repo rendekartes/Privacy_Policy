@@ -30,4 +30,4 @@ We may update this policy from time to time. Continued use of the app after chan
 
 ## Contact
 
-agktech@icloud.com
+Tahakavak@gmail.com
